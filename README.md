@@ -1,0 +1,2 @@
+# Walltex-Token
+(WxW)
